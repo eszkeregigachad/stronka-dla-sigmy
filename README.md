@@ -1,0 +1,1 @@
+# stronka-dla-sigmy
